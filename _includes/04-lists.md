@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Freefire :heart:
+* Instagram :sparkles:
+* Technology :tada:
+
